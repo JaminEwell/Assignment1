@@ -16,4 +16,4 @@ The user learns about **_Vecta Corp Solutions_** such as:
 #### Inspiration for the day
 
 > "Design is not just what it looks like and feels like. Design is how it works."
-![Steve Jobs](https://unsplash.com/photos/Lyfy7j9fy0U)
+![Steve Jobs](https://cdn.pixabay.com/photo/2015/11/18/20/03/steve-jobs-1049872_1280.jpg)
